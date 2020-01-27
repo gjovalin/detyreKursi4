@@ -1,0 +1,1 @@
+# detyreKursi4
